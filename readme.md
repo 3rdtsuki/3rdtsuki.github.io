@@ -1,1 +1,3 @@
-![](https://ipcounter.ihcr.top)
+#### 何もない　部屋で一人
+####　静かな音が　突き刺さる
+![avatar](/福寿草.jpg)
